@@ -1,0 +1,9 @@
+Hurmur is a small, isolated village located in the northern reaches of the cursed land. The village is situated near the base of a mountain range, and is surrounded by dense forests on all sides. Due to its remote location, Hurmur is rarely visited by outsiders, and the villagers are fiercely protective of their way of life.
+
+The people of Hurmur are simple folk who live off the land, hunting and gathering in the surrounding wilderness. They are known for their hospitality and generosity, and travelers who pass through the village are often treated to warm meals and comfortable lodgings.
+
+Despite its peaceful reputation, however, Hurmur is not without its dangers. The dense forests that surround the village are home to all manner of dangerous creatures, from wolves and bears to more supernatural beasts like wraiths and specters. The villagers are well aware of these dangers, and take great care to defend themselves and their homes.
+
+In recent years, the villagers of Hurmur have begun to notice strange occurrences happening in the forests around their village. Unearthly howls can be heard at night, and travelers passing through the area have reported seeing strange, shadowy figures moving through the trees. The villagers fear that some dark force may be at work in the forests, and they have begun to organize hunting parties to investigate.
+
+Despite these concerns, however, life in Hurmur goes on much as it always has. The villagers continue to tend to their crops and livestock, and to celebrate their traditional festivals and holidays. Hurmur may be small and isolated, but it is a community filled with warmth and camaraderie, and those who are lucky enough to visit often find themselves longing to return.

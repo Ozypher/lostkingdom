@@ -1,0 +1,7 @@
+The Sorceress of the Black Tower is a powerful and mysterious figure who dwells in a towering, shadowy fortress that overlooks the land. She is known to have mastered the dark magic of the curse, and many fear her and the power she wields. Few have ever dared to enter her lair, and those who have are said to have never returned.
+
+The Sorceress has a vast army of loyal followers, who will stop at nothing to see her plans come to fruition. Some say she seeks to use her dark magic to take over the land and rule as a tyrant, while others believe she seeks to destroy the curse and restore the land to its former glory. Whatever her true intentions may be, she is a fearsome foe, with powerful spells and dark minions at her command.
+
+Many have tried to defeat the Sorceress and claim her powerful magic for themselves, but few have succeeded. Her fortress is well-guarded, and her minions are fierce and unyielding. Those who dare to face her must be prepared for a fierce battle, and may need to use all their cunning and wits to outsmart her and her minions.
+
+Despite her fearsome reputation, some believe that the Sorceress may still have a heart, and that her dark magic may be a means to a greater end. Whether this is true or not remains to be seen, but one thing is for sure: those who cross the Sorceress of the Black Tower do so at their own peril.

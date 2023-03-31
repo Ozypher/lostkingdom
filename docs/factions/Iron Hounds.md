@@ -1,0 +1,9 @@
+The warband known as the Iron Hounds is a fearsome group of warriors who have made a name for themselves through their ruthless tactics and brutal efficiency in battle. Originally formed as a mercenary company, the Iron Hounds quickly gained a reputation for their willingness to take on even the most dangerous and seemingly impossible missions.
+
+Led by a fierce and charismatic commander known only as the Iron Wolf, the Iron Hounds are renowned for their discipline and martial prowess. They are a tightly knit group, bound together by a fierce loyalty to each other and to their leader, and they are known for their brutal efficiency on the battlefield.
+
+The Iron Hounds are a versatile force, capable of fighting on both the open field and in the tight confines of a city street. They are equipped with a wide range of weapons and armor, including heavy plate armor and massive two-handed swords, and they are trained in a variety of fighting styles, from archery and swordplay to hand-to-hand combat and siege warfare.
+
+Despite their fearsome reputation, the Iron Hounds are not without their detractors. Many accuse them of being little more than bloodthirsty mercenaries, willing to fight for anyone who can pay their exorbitant fees. Others criticize their tactics, which can be brutal and indiscriminate, causing civilian casualties and leaving a trail of destruction in their wake.
+
+However, for those in need of their services, there is no denying the Iron Hounds' effectiveness. They have played a key role in many of the major conflicts that have ravaged the world since the curse fell, and their skills and reputation have made them a highly sought-after asset for those seeking to gain an edge in the ongoing struggle for survival.

@@ -1,0 +1,7 @@
+The Dragon Queen is a powerful and ancient dragon, said to be the last of her kind. She rules over the mountains and valleys surrounding the ruins of Hornwall, where she dwells in a massive, castle-like lair. Her scales are the color of molten gold, and her eyes are said to be like twin flames, burning with an unquenchable fire.
+
+The Dragon Queen is a fearsome foe, with immense strength, speed, and cunning. She commands an army of dragons and wyverns, who are fiercely loyal to her and will stop at nothing to defend their queen. Many have tried to defeat her and claim her vast hoard of treasure, but few have even come close to succeeding.
+
+Despite her fearsome reputation, some believe that the Dragon Queen may be capable of reason and diplomacy. There are stories of brave adventurers who have managed to parley with her, negotiating truces and alliances with the powerful dragon queen. However, such stories are few and far between, and many still consider her to be an unbeatable foe.
+
+The Dragon Queen is an enigmatic figure, and her true motivations and desires are not fully understood. Some believe that she seeks to reclaim the land for her kind, while others believe that she simply seeks to amass more treasure and power. Whatever her true intentions may be, those who dare to face the Dragon Queen must be prepared for a fierce and deadly battle.

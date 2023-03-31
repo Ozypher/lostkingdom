@@ -1,0 +1,7 @@
+The Great Wyrm is a colossal dragon of immense power and ancient age. It is said that this dragon is the last of its kind, having outlived all others of its species by centuries. The Great Wyrm is revered and feared by all who know of it, as it possesses both unparalleled strength and great wisdom.
+
+The Great Wyrm is known to have lived for thousands of years, and it has accumulated an immense amount of knowledge and magical power over the centuries. It is said to have a deep understanding of the ways of the universe and the nature of magic itself. Its lair is said to be filled with ancient artifacts and tomes of knowledge that date back to the earliest days of the world.
+
+Despite its immense power and knowledge, The Great Wyrm is a reclusive creature that rarely ventures beyond its lair. It is said that it only emerges from its lair when it senses a great threat to the world, or when it is seeking a worthy opponent to do battle with. When The Great Wyrm does emerge, it is a sight to behold, as its massive wings blot out the sun and its roar shakes the very earth.
+
+Many have sought to seek out The Great Wyrm, either to seek its wisdom or to challenge it in battle, but few have succeeded. The dragon is fiercely protective of its hoard and its knowledge, and it is not easily swayed by flattery or threats. Those who do manage to gain an audience with The Great Wyrm, however, are said to come away changed by the experience, with a new understanding of the world and their place in it.

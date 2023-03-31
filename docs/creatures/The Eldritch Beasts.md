@@ -1,0 +1,9 @@
+When the curse fell upon the land, it was not just the people and the cities that were affected. The very fabric of reality itself was twisted and warped, causing rifts to open in the fabric of space and time. Through these rifts came the eldritch beings, creatures from beyond our world that were drawn to the chaos and destruction that the curse had wrought.
+
+At first, these beings were little more than whispers on the wind, their presence felt only in the darkest corners of the land. But as the curse grew stronger and the world was plunged into deeper darkness, the eldritch beings began to manifest in more tangible forms.
+
+These creatures were like nothing that the people of the land had ever seen before. They were twisted and grotesque, with limbs that bent in impossible ways and eyes that shone with an otherworldly light. They moved through the world with a grace and fluidity that defied the laws of physics, and they seemed to be immune to the effects of the curse.
+
+As the eldritch beings grew stronger, they began to exert their influence over the land. They drew power from the chaos and destruction, feeding on the fear and desperation of the people. They twisted the minds of those who came into contact with them, driving them to madness or death.
+
+Despite their power, however, the eldritch beings were not invincible. There were those who learned to harness the power of magic and use it against them, driving them back into the rifts from which they came. But the rifts remained open, and the threat of the eldritch beings still loomed over the land, a constant reminder of the darkness that had befallen it.

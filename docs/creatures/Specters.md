@@ -1,0 +1,7 @@
+In the context of this world, specters are spectral entities that are said to be the remnants of the dead who were unable to pass on to the afterlife. They are often seen as haunting and malevolent beings, possessing a deep and abiding hatred for the living.
+
+Specters are typically encountered in areas that have been touched by the curse, such as ancient burial grounds or abandoned ruins. They are known to be particularly dangerous to those who have not yet fully come to terms with their mortality, as their fear and uncertainty can attract the attention of the specters.
+
+Specters are difficult to harm with physical weapons, as they are not entirely corporeal. However, they are vulnerable to magic, particularly spells that channel positive energy. It is said that the spirits of the dead can be laid to rest if the specters are defeated in battle and their remains are properly consecrated.
+
+Despite their malevolent reputation, some believe that not all specters are evil. Some are said to be the spirits of those who died before their time, seeking only to complete unfinished business or to pass on a message to the living. These benevolent specters are rare, however, and most who encounter them do so at their peril.

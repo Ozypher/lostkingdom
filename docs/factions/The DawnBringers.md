@@ -1,0 +1,11 @@
+The Dawnbringers are a secretive and highly organized cult that worships the rising sun as a symbol of hope and renewal in the midst of the cursed darkness that blankets the world. The cult is led by a group of powerful sorcerers and clerics, who have used their magical abilities to gain a devoted following among the desperate and disenfranchised.
+
+The cult is known for its charismatic leaders, who promise their followers that they will be granted great power and knowledge if they join the Dawnbringers. Many of those who are drawn to the cult are people who have been touched by the curse in some way, either by losing loved ones to the undead or by suffering from the curse themselves. The Dawnbringers offer these people a sense of purpose and community, as well as the promise of a brighter future.
+
+Despite their benevolent-sounding name, the Dawnbringers are not universally loved or trusted. Many view them as a dangerous cult, whose leaders are willing to use any means necessary to achieve their goals. Some even believe that the Dawnbringers are secretly responsible for the curse itself, and that their true intentions are far more sinister than they let on.
+
+The cult is known to be highly secretive, with its members meeting in hidden temples and performing elaborate rituals that are closed to outsiders. They are also known to have a network of spies and informants throughout the land, gathering information and rooting out potential threats to their cause.
+
+While the Dawnbringers are primarily a religious organization, they are not above using violence and coercion to achieve their goals. They have been known to raid the strongholds of their enemies, and to use their magical abilities to subjugate those who stand in their way. Some even whisper that the leaders of the Dawnbringers have made pacts with dark powers in order to gain their strength and knowledge.
+
+Despite their controversial nature, the Dawnbringers remain a powerful force in the world, with their influence extending far beyond their own ranks. Whether they are a force for good or evil is a matter of debate, but few can deny the impact they have had on the world in the wake of the curse.
