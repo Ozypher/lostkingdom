@@ -1,11 +1,59 @@
-# Obsidian Notes
+**The Grimoire is intentionally blank, you will uncover more as you play, the information provided is common knowledge**
 
-Publish your public notes with MkDocs
+##Introduction
 
-## Hello World!
+[[The Cursed Lands]]
 
-The `index.md` in the `/docs` folder is the homepage you see here.
+[[Creating a Character]]
 
-The folders in `/docs` appear as the main sections on the navigation bar.
+[[Stats]]
 
-The notes appear as pages within these sections. For example, [[Note 1]] in `Topic 1`
+[[Classes]]
+
+[[Combat]]
+
+##Places
+
+[[Asterra]]
+
+[[FireReach]]
+
+[[Glenomra]]
+
+[[Hornwall]]
+
+[[Hurmur]]
+
+##Creatures
+
+[[Dragons]]
+
+[[The Eldritch Beasts]]
+
+[[Turned]]
+
+[[Specters]]
+
+##Factions
+
+[[The DawnBringers]]
+
+[[Arcane Scholars]]
+
+[[Iron Hounds]]
+
+##Notable Beings
+
+[[The Cursed King]]
+
+[[The Dragon Queen]]
+
+[[The Great Wyrm]]
+
+[[The Lord of the Turned]]
+
+[[The Necromancer]]
+
+[[The Sorceress of the Black Tower]]
+
+[[Iron Wolf]]
